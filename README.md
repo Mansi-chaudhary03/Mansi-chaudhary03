@@ -1,4 +1,4 @@
-![logo](https://github.com/Mansi-chaudhary03/Mansi-chaudhary03/blob/main/Navy%20And%20White%20Geometric%20Technology%20%20LinkedIn%20Banner%20(1).png)
+![logo](https://github.com/Mansi-chaudhary03/Mansi-chaudhary03/blob/main/Navy%20And%20White%20Geometric%20Technology%20%20LinkedIn%20Banner%20(3).png)
 
 <h1 align="center">Hi 👋, I'm Mansi Chaudhary</h1>
 
